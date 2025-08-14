@@ -1,5 +1,3 @@
 # ABOUT-ME
 
-YOU REALLY THOUGHT I WOULD DO THIS DUMB THING?
-
-YOU ARE AN IDIOT HAHAHA :))
+sorry ladies this place is closed tonight 
